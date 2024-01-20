@@ -1,5 +1,6 @@
 <a href="#" class="btn btn-danger" style="color: red; font-size: 20px;">P A P A Z</a>
-- Sunuculara bot yapmak için gelip aynı zamanda ücretsiz reklam yaptırıcam diye gezen mac. kullanıcısı sunuculardan yt alıp sunuculara vuruyor ve kullandığı altyapılarda nedense ozinin bu arkadaşa dikkat edin sunucularınıza vurur böyle karakter yoksunu arkadaşlara prim vermeyin canlarım
+- Sunuculara bot yapmak için gelip aynı zamanda ücretsiz reklam yaptırıcam diye gezen mac. kullanıcısı sunuculardan yt alıp sunuculara vuruyor ve kullandığı altyapılarda nedense ozinin bu arkadaşa dikkat edin sunucularınıza vurur böyle karakter yoksunu arkadaşlara prim vermeyin canlarım 
+-Bide Sunucuyu spawn atıyor ele aptal ucube işte bide botu düşürdüm der :d 300 mesaj aynanda silmesi beni güldüm :D
 
  - Repodaki Aşklar ravgar,ramal.,ancientchavo., .calabria Bunlara prim vermeyin gidin bu ekip yapdırın botları xd.
 
