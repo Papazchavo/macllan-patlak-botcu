@@ -10,6 +10,10 @@
 
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198113973191581808/Ek_Acklama_2024-01-17_033017.png?ex=65bdb997&is=65ab4497&hm=da5dff49d13a18adac1978b34e87436f8cfe473c1ba4fa7b3ad5ad04532f601d&=&format=webp&quality=lossless&width=406&height=408)
 
+![image](https://media.discordapp.net/attachments/1157789870534701057/1198266865168953445/image.png?ex=65be47fb&is=65abd2fb&hm=a765196dc9fe6e256270df1822c43600c4edc5950147f32c77ec7d9318ab44c3&=&format=webp&quality=lossless&width=1346&height=280)
+
+![image](https://media.discordapp.net/attachments/1157789870534701057/1198266943258513418/image.png?ex=65be480d&is=65abd30d&hm=fd4371a46b4eeae124626771dcd2d70cb23c1190d49f591b8416a4d9aecf538f&=&format=webp&quality=lossless&width=1342&height=297)
+
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198114204314521661/image.png?ex=65bdb9ce&is=65ab44ce&hm=f51b492fda8038f4be888694e9112a60a343c8ea80be7ab4b3bc77434aa9c9b9&=&format=webp&quality=lossless&width=367&height=73)
 
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198114980885704824/image.png?ex=65bdba87&is=65ab4587&hm=17b2441fc1013cd0915302779da8eb7893e86b05392213991c4e326f0f3a064a&=&format=webp&quality=lossless&width=725&height=408)
