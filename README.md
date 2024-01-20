@@ -14,6 +14,14 @@
 
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198114980885704824/image.png?ex=65bdba87&is=65ab4587&hm=17b2441fc1013cd0915302779da8eb7893e86b05392213991c4e326f0f3a064a&=&format=webp&quality=lossless&width=725&height=408)
 
+-EVET BURDA BİRTANE SALAK BİR FOTO BULDUM ARAKDAŞ BENİM BOT YAPDIM YER DİE ÜYE TOKEN ATIYOR ATDI YERDE BOTCULUK YAPMADIM :D HAKKIM DA PRİM KASIYOR YOUTUBE BİDE DİSCORD HESAP NAIL GİRİLİR DİE ARAŞTIRIYOR MAL :D XD
+
+![image](https://media.discordapp.net/attachments/1198112235361423411/1198118414984687676/image.png?ex=65bdbdba&is=65ab48ba&hm=8adcffa2a250adad669f631f689d53ee9090ea1020a58a03e29bd89cc6f3e8ff&=&format=webp&quality=lossless&width=786&height=408)
+
+- bu ss tede gördüğünüz gibi kendini sanal mafya ilan etmiş bu arkadaşa bot yaptırmayın :D
+
+![image](https://media.discordapp.net/attachments/1198112235361423411/1198118661735596144/image.png?ex=65bdbdf4&is=65ab48f4&hm=7b71b0a82ca32319fc522014e754e94d359a01c11bdee3e74848e4585a2e8e20&=&format=webp&quality=lossless&width=381&height=408)
+
 # PRİM KASMA BİR DAKİNE BAŞKA OLAYLARDA OLURUZ.
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198115116923768872/image.png?ex=65bdbaa7&is=65ab45a7&hm=8625ba3166c48ddfa3a219c0775d4ae1ea6ce311be05fb1b7cf66940192b7aba&=&format=webp&quality=lossless&width=665&height=44)
 
