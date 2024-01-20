@@ -10,6 +10,8 @@
 
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198113973191581808/Ek_Acklama_2024-01-17_033017.png?ex=65bdb997&is=65ab4497&hm=da5dff49d13a18adac1978b34e87436f8cfe473c1ba4fa7b3ad5ad04532f601d&=&format=webp&quality=lossless&width=406&height=408)
 
+## Kurucu fotoları
+
 ![image](https://media.discordapp.net/attachments/1157789870534701057/1198266865168953445/image.png?ex=65be47fb&is=65abd2fb&hm=a765196dc9fe6e256270df1822c43600c4edc5950147f32c77ec7d9318ab44c3&=&format=webp&quality=lossless&width=1346&height=280)
 
 ![image](https://media.discordapp.net/attachments/1157789870534701057/1198266943258513418/image.png?ex=65be480d&is=65abd30d&hm=fd4371a46b4eeae124626771dcd2d70cb23c1190d49f591b8416a4d9aecf538f&=&format=webp&quality=lossless&width=1342&height=297)
