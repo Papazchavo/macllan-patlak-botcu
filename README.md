@@ -2,7 +2,7 @@
 - Sunuculara bot yapmak için gelip aynı zamanda ücretsiz reklam yaptırıcam diye gezen mac. kullanıcısı sunuculardan yt alıp sunuculara vuruyor ve kullandığı altyapılarda nedense ozinin bu arkadaşa dikkat edin sunucularınıza vurur böyle karakter yoksunu arkadaşlara prim vermeyin canlarım 
 -Bide Sunucuyu spawn atıyor ele aptal ucube işte bide botu düşürdüm der :d 300 mesaj aynanda silmesi beni güldüm :D
 
- - Repodaki Aşklar ravgar,ramal.,ancientchavo., .calabria Bunlara prim vermeyin gidin bu ekip yapdırın botları xd.
+ - Repodaki Aşklar ravgar,ramal.,ancientchavo., .calabria,leqendchavo Bunlara prim vermeyin gidin bu ekip yapdırın botları xd.
 
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198114459969917058/image.png?ex=65bdba0b&is=65ab450b&hm=91d2bc19c9dce39d3c47d36d2f593658af7ace1fb796567f2eb6a1da012bb623&=&format=webp&quality=lossless&width=336&height=323)
 
