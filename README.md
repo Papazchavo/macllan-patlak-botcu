@@ -10,6 +10,10 @@
 
 ![image](https://media.discordapp.net/attachments/1198112235361423411/1198113973191581808/Ek_Acklama_2024-01-17_033017.png?ex=65bdb997&is=65ab4497&hm=da5dff49d13a18adac1978b34e87436f8cfe473c1ba4fa7b3ad5ad04532f601d&=&format=webp&quality=lossless&width=406&height=408)
 
+## APTAL MC HALA PRİM KASMAYA DEVAM EDİYOR 
+
+![image](https://media.discordapp.net/attachments/1158446698935373865/1198983982675660893/image-28.png?ex=65c0e3d9&is=65ae6ed9&hm=e15c69462b89f477889bf0cd180a4c6c5bfd141d6ab4b361c28b54091fffa17c&=&format=webp&quality=lossless&width=201&height=338)
+
 ## Kurucu fotoları
 
 ![image](https://media.discordapp.net/attachments/1157789870534701057/1198266865168953445/image.png?ex=65be47fb&is=65abd2fb&hm=a765196dc9fe6e256270df1822c43600c4edc5950147f32c77ec7d9318ab44c3&=&format=webp&quality=lossless&width=1346&height=280)
